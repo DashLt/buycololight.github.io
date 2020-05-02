@@ -2,6 +2,10 @@
 
 ## *Starting at just $5, with free global shipping!*
 
+Scroll to the bottom of the page for information on ordering.
+
+*Note: this is not our entire stock! We have more lights, including ones with up to 16 RGB LEDs in a single panel. We're working to add them to the product listing, but for now please inquire about your needs and we will assist you.*
+
 ### Offers:
  * FG02 Cololight: best for value
    - One light: $5
